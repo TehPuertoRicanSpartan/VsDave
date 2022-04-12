@@ -1,11 +1,7 @@
+i just removed the files just to have flps haha fuck you!!
 
-## Powered by a heavily modified version of Kade Engine known as Dave Engine!
-![Kade Engine Logo](https://github.com/KadeDev/Kade-Engine/blob/stable/assets/preload/images/KadeEngineLogo.png)
-
-## Dave
-this is dave
-![Dave](https://cdn.discordapp.com/attachments/892140166309892136/905267141299802152/dorve_reale.png)
-
-say hi to dave
-
-please say hi to him
+## Rayna
+this is rayna
+she's who i simp for
+![Rayna](https://cdn.discordapp.com/attachments/959811138068021278/963267110379860068/Screenshot_20220411-220553_YouTube.jpg)
+i hate to reveal her
